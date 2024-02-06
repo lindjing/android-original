@@ -1,2 +1,2 @@
 # android-original
-WDBLF my mib talks. 
+解體黨文化
